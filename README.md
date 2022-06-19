@@ -1,5 +1,5 @@
 Curious about this particular shark hm?
-_;D_
+_can't really blame ya ;D_
 
 Social links:
 [FA](https://www.furaffinity.net/user/jososhark)
