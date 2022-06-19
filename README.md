@@ -1,6 +1,4 @@
-Curious about this particular shark hm?
-_good ;D_
-
+### Curious about this particular shark hm?
 Social links:
 [FA](https://www.furaffinity.net/user/jososhark)
 [Twitter](https://twitter.com/JosoShark)
