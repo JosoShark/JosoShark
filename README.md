@@ -1,7 +1,6 @@
 ### Curious about this particular shark hm?
 Social links:
-[Fur Affinity](https://www.furaffinity.net/user/jososhark)
-[Twitter](https://twitter.com/JosoShark)
+[Fur Affinity](https://www.furaffinity.net/user/jososhark), [Twitter](https://twitter.com/JosoShark)
 
 
 Profile Picture by [@ICDraws](https://twitter.com/ICDraws)
